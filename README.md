@@ -10,4 +10,5 @@ Tengo 22 años y vivo en Ariel del plata, campana
 *🎮🖥️ jugar juegos
 
 
-![IMAGEN 2](https://github.com/user-attachments/assets/99f3b037-05b3-431e-84b7-f01715b05117)
+
+![IMAGEN CHICA](https://github.com/user-attachments/assets/ceb8e1f0-e513-430f-9510-a60ce89615a0)
